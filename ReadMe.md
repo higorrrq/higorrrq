@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭Estou cursando Analise e Desenvolvimento de Sistemas!<br>👯 A procura de um Estagio<br>🤝 Quero muito crescer nesta área <br>
+🔭Estou cursando Analise e Desenvolvimento de Sistemas!<br>😁 A procura de um Estagio<br>🤝 Quero muito crescer nesta área <br>
 
 
 ## 🌐 Socials:
